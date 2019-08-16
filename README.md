@@ -38,5 +38,7 @@ Noise pollution affects both health and behavior. Unwanted sound (noise) can dam
 A sound level meter, is one of the main tools for measuring sounds in the environment and the workplace
 Sound becomes unwanted when it either interferes with normal activities such as sleep or conversation, or disrupts or diminishes one's quality of life.[15] Noise-induced hearing loss can be caused by prolonged exposure to noise levels above 85 A-weighted decibels.[16] A comparison of Maaban tribesmen, who were insignificantly exposed to transportation or industrial noise, to a typical U.S. population showed that chronic exposure to moderately high levels of environmental noise contributes to hearing loss.[11]
 
-Noi
+Noise pollution is also known as enviromental pollution or sonud pollution
+Noise pollution or sound pollution refers to the presence of excessve and disturbing noise in the enviromental
+Noise pollution or sound pollution refers to the presence of excessve and disturbing noise in the enviromental
 
